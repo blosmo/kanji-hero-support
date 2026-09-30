@@ -1,2 +1,2 @@
-# kanji-hero-support
-Support and privacy policy for Kanji Hero by Divine Inside LLC
+# Key Rally support
+Support and privacy policy for Key Rally by Divine Inside LLC
